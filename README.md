@@ -2,12 +2,12 @@ E-commerce Scorpion E-sports
 
 Conceito:
 
-Um site de jogos e eletrônicos, tendo como objetivo a distribuição do melhor no mercado gamer e inclusão do cenário competitivo de jogos multiplataformas de jogos Internacionais e Nacionais.
+Um site de jogos, eletronicos, personalização e hospedagem para multplos jogadores tendo como objetivo a distribuição do melhor no mercado gamer e inclusão do cenário competitivo de jogos multiplataformas de jogos Internacionais e Nacionais.
 
 Público Alvo:
 
 JO
-Jovens e pessoas com interesse em eventos competitivos Intenacionais.
+Jovens e pessoas com interesse em eventos competitivos Intenacionais visando subir no cenario competitivo nos países afora.
 
 Diferenciais:
 
